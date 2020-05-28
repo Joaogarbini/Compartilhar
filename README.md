@@ -1,0 +1,2 @@
+# Compartilhar
+Intens para compartilhar
